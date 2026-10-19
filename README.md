@@ -1,1 +1,1 @@
-# WasteNav-Case-Study-
+# WasteNav-Case-Study-(Donna Tuazon & Bryan Santos)
